@@ -15,6 +15,6 @@
 
 ### ғɪɴᴅ ᴍᴇ ʜᴇʀᴇ
 
-[strawpage](https://sensyuii.straw.page)　　　[patreon](patreon.com/makemeill)　　　[bluesky](https://bsky.app/profile/bloodyomen.bsky.social)
+[strawpage](https://sensyuii.straw.page)　　　[patreon](https://www.patreon.com/c/makemeill)　　　[bluesky](https://bsky.app/profile/bloodyomen.bsky.social)
 &nbsp;<div align="center">
 <img height="45" width="60" src="https://64.media.tumblr.com/d86f90408815148ce2907eb27d1a6b7d/ab09cd1168144eed-a0/s500x750/536e8b95a4fb0bfe0d84ef40494e7857436308d3.pnj"/>   <img height="60" width="60" src="https://64.media.tumblr.com/34976758831bd6fbd4edca275382b0bc/215a7f0b7f0133b4-4b/s500x750/8b86d9c2b7980059ad2df56078034d13ffbe27a4.pnj"/> <img height="45" width="60" src="https://64.media.tumblr.com/1abe8799d175c2135a5cf5a32ab73297/ab09cd1168144eed-16/s500x750/d688435600d8d6f2662397153ff26995e94ed158.pnj"/>
