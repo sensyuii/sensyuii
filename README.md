@@ -12,7 +12,7 @@
 <img src="https://64.media.tumblr.com/10d9e0c5b333b69742e229eb65b71a60/b1701af0a1435f1a-3d/s100x200/68df3b3a63d41164f5e995405ec12b8678ab2dd9.gifv"/>
 <div alight="center">
 
-###### " 𝘸𝘩𝘰𝘴𝘦 𝘩𝘢𝘯𝘥 𝘨𝘳𝘢𝘴𝘱𝘦𝘵𝘩 𝘵𝘩𝘺 𝘭𝘦𝘢𝘴𝘩, 𝘪 𝘸𝘰𝘯𝘥𝘦𝘳? "
+###### ⋮ ⌗ ┆ " 𝘸𝘩𝘰𝘴𝘦 𝘩𝘢𝘯𝘥 𝘨𝘳𝘢𝘴𝘱𝘦𝘵𝘩 𝘵𝘩𝘺 𝘭𝘦𝘢𝘴𝘩, 𝘪 𝘸𝘰𝘯𝘥𝘦𝘳? "  ౨౿ 
 
 <img src="https://64.media.tumblr.com/6a9795f4808d59e5583df05a3bc2d362/3400bab8094b2855-27/s75x75_c1/698d83572ec76a602b793103cacc11a30d9d706e.gifv"/> you'll mostly find me in front of the bakery or sitting with my friends.  
 𝘪'𝘮 𝘢 𝘣𝘪𝘵 𝘲𝘶𝘪𝘦𝘵 𝘴𝘰 𝘥𝘰𝘯'𝘵 𝘦𝘹𝘱𝘦𝘤𝘵 𝘮𝘶𝘤𝘩 𝘤𝘰𝘯𝘷𝘦𝘳𝘴𝘢𝘵𝘪𝘰𝘯-𝘸𝘪𝘴𝘦.. <img src="https://64.media.tumblr.com/a795ffa4138e4850a76d46e605ba7d8b/992b39b6ab3235eb-3e/s75x75_c1/848cf06fe24acf5a341ea88bbf538013089d2cc1.webp"/>
