@@ -3,7 +3,7 @@
 
 # <img src="https://64.media.tumblr.com/6799356a2e858f46a795127d01d017ef/829408b5ef980534-7c/s75x75_c1/38a4a121fa2b70d376757110f8c7e523078584da.gifv"/> 𝘴𝘦𝘯 𝘰𝘳 𝘮𝘰𝘩𝘨 <img height="45" src="https://64.media.tumblr.com/382cebd468bd0c2d6a8fd7561cacdfc9/ddac761f573e10b9-11/s75x75_c1/55eb4c4817299b70cd90284317a99e92fefa9ca6.gifv"/>
 <div alight="center">
-17  ⸝⸝   𝘦𝘭𝘥𝘦𝘯 𝘳𝘪𝘯𝘨 𝘨𝘰𝘰𝘯 𝘢𝘯𝘥 𝘰𝘮𝘦𝘯 𝘵𝘸𝘪𝘯𝘴 𝘦𝘯𝘫𝘰𝘺𝘦𝘳.. 
+⠀⠀ ࣪⠀⠀𓏵⠀⠀ ׅ　 17 . 𝘌𝘙/𝘋𝘚 𝘨𝘰𝘰𝘯 𝘢𝘯𝘥 𝘰𝘮𝘦𝘯 𝘵𝘸𝘪𝘯𝘴 𝘦𝘯𝘫𝘰𝘺𝘦𝘳 ⠀ྀི
 
 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘰𝘧𝘧-𝘵𝘢𝘣, 𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘤+𝘩 @ 𝘢𝘯𝘺 𝘵𝘪𝘮𝘦
 
