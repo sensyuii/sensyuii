@@ -21,7 +21,7 @@
 ###### !!! 𝘥𝘰 𝘯𝘰𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘴𝘬𝘪𝘯𝘴, 𝘱𝘭𝘦𝘢𝘴𝘦. !!!
 <img height="150" src="https://media.discordapp.net/attachments/1154618596450902036/1348412222552150086/IMG_2842.png?ex=67cf5e3e&is=67ce0cbe&hm=ea858de205b7b03ed7e57fc874cc4d347eb84036546e4558c3264771bce93c2d&=&format=webp&quality=lossless&width=500&height=541"/> <img height="190" src="https://media.discordapp.net/attachments/1154618596450902036/1348412223378161778/IMG_2846.png?ex=67cf5e3e&is=67ce0cbe&hm=5ec6b8700d20896c3b5e852555f76f496c5cb8116e81e7064c7e4ba9965d424e&=&format=webp&quality=lossless&width=500&height=541"/> <img height="190" src="https://media.discordapp.net/attachments/1154618596450902036/1348412223881609236/IMG_2847.png?ex=67cf5e3e&is=67ce0cbe&hm=e08eb27046585bd0682e2d88bf7a198f0e1a0e26122bf37c5b125828c687cf9f&=&format=webp&quality=lossless&width=500&height=541"/> <img height="150" src="https://media.discordapp.net/attachments/1154618596450902036/1348412222866718731/IMG_2843.png?ex=67cf5e3e&is=67ce0cbe&hm=1a40ac2715571fd5a7e23bba5db8b2806a05cbb6800a1de79712c97a05654a65&=&format=webp&quality=lossless&width=500&height=541"/>
 
-###### the main skins i sit in >u<
+###### the main skins i sit in >u< <33
 
 # 
 
