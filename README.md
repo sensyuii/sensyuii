@@ -1,13 +1,13 @@
 ![](https://komarev.com/ghpvc/?username=sensyuii&color=A6040f&style=flat-square&label=_♱_)
 
 &nbsp;<div align="center">
-<img src="https://media1.tenor.com/m/gccyGFdp0q8AAAAd/elden-ring-goty.gif"/> 
+<img height="250" src="https://media.discordapp.net/attachments/1075625623525003316/1348416834264891503/ezgif-600fccb20f521b.gif?ex=67cf6289&is=67ce1109&hm=5e91f0e9032b9d4935885f19f52236508f7d7be89666abaf2cea949553dbb1bd&=&width=548&height=199"/> 
 
-# <img src="https://64.media.tumblr.com/6799356a2e858f46a795127d01d017ef/829408b5ef980534-7c/s75x75_c1/38a4a121fa2b70d376757110f8c7e523078584da.gifv"/> 𝘴𝘦𝘯 𝘰𝘳 𝘮𝘰𝘩𝘨 <img height="45" src="https://64.media.tumblr.com/382cebd468bd0c2d6a8fd7561cacdfc9/ddac761f573e10b9-11/s75x75_c1/55eb4c4817299b70cd90284317a99e92fefa9ca6.gifv"/>
+# <img src="https://64.media.tumblr.com/6799356a2e858f46a795127d01d017ef/829408b5ef980534-7c/s75x75_c1/38a4a121fa2b70d376757110f8c7e523078584da.gifv"/> 𝘴𝘦𝘯 𝘰𝘳 𝘮𝘰𝘩𝘨 <img height="35" src="https://media.discordapp.net/attachments/1307842881872068828/1307848305581228073/B2150-BAD-8327-4521-BF37-884-CD65-E9-A4-A.png?ex=67cecb66&is=67cd79e6&hm=a6a265f2b110b94aea3a3847655c1bc9ed08c39f6409cfe319c8b7194e4bbb32&=&format=webp&quality=lossless&width=662&height=662"/>
 <div alight="center">
-⠀⠀ ࣪⠀⠀𓏵⠀⠀ ׅ　 17 . 𝘌𝘙/𝘋𝘚 𝘨𝘰𝘰𝘯 𝘢𝘯𝘥 𝘰𝘮𝘦𝘯 𝘵𝘸𝘪𝘯𝘴 𝘦𝘯𝘫𝘰𝘺𝘦𝘳 ⠀ྀི
+⠀ ׅ　 17 . 𝘌𝘙/𝘋𝘚 𝘨𝘰𝘰𝘯 𝘢𝘯𝘥 𝘰𝘮𝘦𝘯 𝘵𝘸𝘪𝘯𝘴 𝘦𝘯𝘫𝘰𝘺𝘦𝘳 ⠀ྀི
 
-𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘰𝘧𝘧-𝘵𝘢𝘣, 𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘤+𝘩 @ 𝘢𝘯𝘺 𝘵𝘪𝘮𝘦 !!! ⠀♰⠀   𓈒
+⠀ ࣪⠀⠀𓏵⠀⠀𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘰𝘧𝘧-𝘵𝘢𝘣, 𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘤+𝘩 @ 𝘢𝘯𝘺 𝘵𝘪𝘮𝘦 !!! ⠀♰⠀   𓈒
 
 ۶ৎㅤ𓏼 𓈒 𝘪𝘧 𝘪 𝘥𝘰𝘯'𝘵 𝘳𝘦𝘱𝘭𝘺, 𝘪'𝘮 𝘱𝘳𝘰𝘣𝘢𝘣𝘭𝘺 𝘣𝘶𝘴𝘺 ^^ <img src="https://64.media.tumblr.com/ca01b4bde0808bf3584ef4cbb3dd0f76/b18aff3ce9323114-7c/s75x75_c1/6694e17317fece7cf72ad039c90895c4b5f73821.gifv"/>
 &nbsp;<div align="center">
