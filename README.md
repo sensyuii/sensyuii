@@ -18,7 +18,12 @@
 𝘪'𝘮 𝘢 𝘣𝘪𝘵 𝘲𝘶𝘪𝘦𝘵 𝘴𝘰 𝘥𝘰𝘯'𝘵 𝘦𝘹𝘱𝘦𝘤𝘵 𝘮𝘶𝘤𝘩 𝘤𝘰𝘯𝘷𝘦𝘳𝘴𝘢𝘵𝘪𝘰𝘯-𝘸𝘪𝘴𝘦.. <img src="https://64.media.tumblr.com/a795ffa4138e4850a76d46e605ba7d8b/992b39b6ab3235eb-3e/s75x75_c1/848cf06fe24acf5a341ea88bbf538013089d2cc1.webp"/>
 
 𝘮𝘰𝘳𝘦 𝘢𝘣𝘰𝘶𝘵 𝘮𝘦 𝘰𝘯 𝘮𝘺 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦, 𝘱𝘢𝘵𝘳𝘦𝘰𝘯/𝘣𝘴𝘬𝘺 𝘧𝘰𝘳 𝘢𝘳𝘵
-###### 𝘥𝘰 𝘯𝘰𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘴𝘬𝘪𝘯𝘴, 𝘱𝘭𝘦𝘢𝘴𝘦.
+###### !!! 𝘥𝘰 𝘯𝘰𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘴𝘬𝘪𝘯𝘴, 𝘱𝘭𝘦𝘢𝘴𝘦. !!!
+<img height="150" src="https://media.discordapp.net/attachments/1154618596450902036/1348412222552150086/IMG_2842.png?ex=67cf5e3e&is=67ce0cbe&hm=ea858de205b7b03ed7e57fc874cc4d347eb84036546e4558c3264771bce93c2d&=&format=webp&quality=lossless&width=500&height=541"/> <img height="190" src="https://media.discordapp.net/attachments/1154618596450902036/1348412223378161778/IMG_2846.png?ex=67cf5e3e&is=67ce0cbe&hm=5ec6b8700d20896c3b5e852555f76f496c5cb8116e81e7064c7e4ba9965d424e&=&format=webp&quality=lossless&width=500&height=541"/> <img height="190" src="https://media.discordapp.net/attachments/1154618596450902036/1348412223881609236/IMG_2847.png?ex=67cf5e3e&is=67ce0cbe&hm=e08eb27046585bd0682e2d88bf7a198f0e1a0e26122bf37c5b125828c687cf9f&=&format=webp&quality=lossless&width=500&height=541"/> <img height="150" src="https://media.discordapp.net/attachments/1154618596450902036/1348412222866718731/IMG_2843.png?ex=67cf5e3e&is=67ce0cbe&hm=1a40ac2715571fd5a7e23bba5db8b2806a05cbb6800a1de79712c97a05654a65&=&format=webp&quality=lossless&width=500&height=541"/>
+
+###### the main skins i sit in >u<
+
+# 
 
 ### <img height="35" src="https://64.media.tumblr.com/be9c37d5bb31788d8d95e25ad861ebe4/8680f2784c87222c-cc/s250x400/744e339fa8a9f8c86edd552f9df95f79acdb48b2.gif"/> ғɪɴᴅ ᴍᴇ ʜᴇʀᴇ <img src="https://64.media.tumblr.com/09012edbc0b3438ab0771d25aa68d7dc/f08feb7fa6d2b08c-16/s75x75_c1/4c81cd752e91f5d392b04253f9f8d3b77392a18a.gifv"/>
 
