@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=sensyuii&color=A6040f&style=flat-square&label=_♱_)
+
 &nbsp;<div align="center">
 <img src="https://media1.tenor.com/m/gccyGFdp0q8AAAAd/elden-ring-goty.gif"/> 
 
