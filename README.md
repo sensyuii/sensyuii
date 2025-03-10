@@ -1,11 +1,11 @@
 ![](https://komarev.com/ghpvc/?username=sensyuii&color=A6040f&style=flat-square&label=_♱_)
 
 &nbsp;<div align="center">
-<img height="250" src="https://media.discordapp.net/attachments/1075625623525003316/1348416834264891503/ezgif-600fccb20f521b.gif?ex=67cf6289&is=67ce1109&hm=5e91f0e9032b9d4935885f19f52236508f7d7be89666abaf2cea949553dbb1bd&=&width=548&height=199"/> 
+<img src="https://media.discordapp.net/attachments/1245083189555494914/1348510823349485568/image.png?ex=67cfba12&is=67ce6892&hm=84689ce10a770405f63d64152b0efaf61a6dfdbccd38acf1122b9871802a48be&=&format=webp&quality=lossless&width=1440&height=421"/> 
 
 # <img src="https://64.media.tumblr.com/6799356a2e858f46a795127d01d017ef/829408b5ef980534-7c/s75x75_c1/38a4a121fa2b70d376757110f8c7e523078584da.gifv"/> 𝘴𝘦𝘯 𝘰𝘳 𝘮𝘰𝘩𝘨 <img height="35" src="https://media.discordapp.net/attachments/1307842881872068828/1307848305581228073/B2150-BAD-8327-4521-BF37-884-CD65-E9-A4-A.png?ex=67cecb66&is=67cd79e6&hm=a6a265f2b110b94aea3a3847655c1bc9ed08c39f6409cfe319c8b7194e4bbb32&=&format=webp&quality=lossless&width=662&height=662"/>
 <div alight="center">
-⠀ ׅ　 17 . 𝘌𝘙/𝘋𝘚 𝘨𝘰𝘰𝘯 𝘢𝘯𝘥 𝘰𝘮𝘦𝘯 𝘵𝘸𝘪𝘯𝘴 𝘦𝘯𝘫𝘰𝘺𝘦𝘳 ⠀ྀི
+⠀ ׅ　 17 . 𝘌𝘙/𝘛𝘓𝘰𝘡 𝘨𝘰𝘰𝘯 𝘢𝘯𝘥 𝘰𝘮𝘦𝘯 𝘵𝘸𝘪𝘯𝘴 𝘦𝘯𝘫𝘰𝘺𝘦𝘳 ⠀ྀི
 
 ⠀ ࣪⠀⠀𓏵⠀⠀𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘰𝘧𝘧-𝘵𝘢𝘣, 𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘤+𝘩 @ 𝘢𝘯𝘺 𝘵𝘪𝘮𝘦 !!! ⠀♰⠀   𓈒
 
@@ -21,7 +21,7 @@
 
 𝘮𝘰𝘳𝘦 𝘢𝘣𝘰𝘶𝘵 𝘮𝘦 𝘰𝘯 𝘮𝘺 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦, 𝘱𝘢𝘵𝘳𝘦𝘰𝘯/𝘣𝘴𝘬𝘺 𝘧𝘰𝘳 𝘢𝘳𝘵
 ###### !!! 𝘥𝘰 𝘯𝘰𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘴𝘬𝘪𝘯𝘴, 𝘱𝘭𝘦𝘢𝘴𝘦. !!!
-<img height="150" src="https://media.discordapp.net/attachments/1154618596450902036/1348412222552150086/IMG_2842.png?ex=67cf5e3e&is=67ce0cbe&hm=ea858de205b7b03ed7e57fc874cc4d347eb84036546e4558c3264771bce93c2d&=&format=webp&quality=lossless&width=500&height=541"/> <img height="190" src="https://media.discordapp.net/attachments/1154618596450902036/1348412223378161778/IMG_2846.png?ex=67cf5e3e&is=67ce0cbe&hm=5ec6b8700d20896c3b5e852555f76f496c5cb8116e81e7064c7e4ba9965d424e&=&format=webp&quality=lossless&width=500&height=541"/> <img height="190" src="https://media.discordapp.net/attachments/1154618596450902036/1348412223881609236/IMG_2847.png?ex=67cf5e3e&is=67ce0cbe&hm=e08eb27046585bd0682e2d88bf7a198f0e1a0e26122bf37c5b125828c687cf9f&=&format=webp&quality=lossless&width=500&height=541"/> <img height="150" src="https://media.discordapp.net/attachments/1154618596450902036/1348412222866718731/IMG_2843.png?ex=67cf5e3e&is=67ce0cbe&hm=1a40ac2715571fd5a7e23bba5db8b2806a05cbb6800a1de79712c97a05654a65&=&format=webp&quality=lossless&width=500&height=541"/>
+<img height="150" src="https://media.discordapp.net/attachments/1154618596450902036/1348412222552150086/IMG_2842.png?ex=67cf5e3e&is=67ce0cbe&hm=ea858de205b7b03ed7e57fc874cc4d347eb84036546e4558c3264771bce93c2d&=&format=webp&quality=lossless&width=500&height=541"/> <img height="190" src="https://media.discordapp.net/attachments/1154618596450902036/1348412223378161778/IMG_2846.png?ex=67cf5e3e&is=67ce0cbe&hm=5ec6b8700d20896c3b5e852555f76f496c5cb8116e81e7064c7e4ba9965d424e&=&format=webp&quality=lossless&width=500&height=541"/> <img height="190" src="https://media.discordapp.net/attachments/1154618596450902036/1348412223881609236/IMG_2847.png?ex=67cf5e3e&is=67ce0cbe&hm=e08eb27046585bd0682e2d88bf7a198f0e1a0e26122bf37c5b125828c687cf9f&=&format=webp&quality=lossless&width=500&height=541"/>
 
 ###### the main skins i sit in >u< <33
 
