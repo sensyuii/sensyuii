@@ -3,7 +3,7 @@
 # 
 
 &nbsp;<div align="center">
-<img src="https://media.discordapp.net/attachments/1245083189555494914/1348510823349485568/image.png?ex=67cfba12&is=67ce6892&hm=84689ce10a770405f63d64152b0efaf61a6dfdbccd38acf1122b9871802a48be&=&format=webp&quality=lossless&width=1440&height=421"/> 
+<img height="250" src="https://media.discordapp.net/attachments/1075625623525003316/1348416834264891503/ezgif-600fccb20f521b.gif?ex=67cf6289&is=67ce1109&hm=5e91f0e9032b9d4935885f19f52236508f7d7be89666abaf2cea949553dbb1bd&=&width=548&height=199"/> 
 
 # <img src="https://64.media.tumblr.com/6799356a2e858f46a795127d01d017ef/829408b5ef980534-7c/s75x75_c1/38a4a121fa2b70d376757110f8c7e523078584da.gifv"/> 𝘴𝘦𝘯 𝘰𝘳 𝘮𝘰𝘩𝘨 <img height="35" src="https://media.discordapp.net/attachments/1307842881872068828/1307848305581228073/B2150-BAD-8327-4521-BF37-884-CD65-E9-A4-A.png?ex=67cecb66&is=67cd79e6&hm=a6a265f2b110b94aea3a3847655c1bc9ed08c39f6409cfe319c8b7194e4bbb32&=&format=webp&quality=lossless&width=662&height=662"/>
 <div alight="center">
