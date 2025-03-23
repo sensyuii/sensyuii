@@ -1,7 +1,9 @@
 ![](https://komarev.com/ghpvc/?username=sensyuii&color=A6040f&style=flat-square&label=_♱_)
 # 
 &nbsp;<div align="center">
-# <img src="https://64.media.tumblr.com/6799356a2e858f46a795127d01d017ef/829408b5ef980534-7c/s75x75_c1/38a4a121fa2b70d376757110f8c7e523078584da.gifv"/> 𝘴𝘦𝘯 𝘰𝘳 𝘮𝘰𝘩𝘨 
+<img src="https://64.media.tumblr.com/d93cbb0814f077306f34d3b74ebf7e39/0ab07e45de42df70-d8/s540x810/2c53d9cb10394a19f7f05319f76738df65d6346e.pnj"/> 
+
+# 𝘴𝘦𝘯 
 
 ⠀ ׅ　[he](https://en.pronouns.page/u/.bloodyomen) ༒︎ 17 .. 𝘌𝘙/𝘛𝘓𝘰𝘡 𝘨𝘰𝘰𝘯 𝘢𝘯𝘥 𝘰𝘮𝘦𝘯 𝘵𝘸𝘪𝘯𝘴 𝘦𝘯𝘫𝘰𝘺𝘦𝘳 ⠀ྀི
 
@@ -30,7 +32,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=w3fh1c1w6dx0lm54eszffhs5x&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=445a51&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=w3fh1c1w6dx0lm54eszffhs5x&redirect=true)
 # 
 
-<img src="https://64.media.tumblr.com/0fc2285ae1344407994ca0a38ddb5257/e00fb671dc1925c4-b4/s75x75_c1/f7bf1d62b4c3a8a3cddef3c1da14356af4b8d002.gifv"/> <img src="https://64.media.tumblr.com/be48bc3b49f7782208bb5ceb2d728dfc/76f0eea448f6a984-52/s75x75_c1/074fdb43405dd403fc2c2a30493339801e1149e8.gifv"/> <img src="https://64.media.tumblr.com/357fa7ea7c710ea7a0acda4bdc0efe98/8827926dd56fd31f-f3/s75x75_c1/d286cab1e7a8b1e29ecc045cb4a6c860691b953a.gif"/> <img src="https://64.media.tumblr.com/f48d760e1a9f57eec987f6b878ccfc96/1925423831a33610-6c/s75x75_c1/d57771a61f134db3a85d9370c0906fd3074a4493.gifv"/> <img src="https://64.media.tumblr.com/808bb783082924a40bb38825fae078da/1925423831a33610-f1/s75x75_c1/494d7e74e0023cafa2fffba247dc4e7f7ddd6844.gif"/> <img src="https://64.media.tumblr.com/05a66eec089aac6e8531f242cbc0be31/03dea6320b0ffd94-63/s75x75_c1/15a147d58cd55027839f33b91ee4db656b921a4d.gif"/> <img src="https://64.media.tumblr.com/68f394594f3a52b76cfbe1c492efa3ce/6a013847a16bf59c-e9/s75x75_c1/0913c0f35820691cdbb71ade79b600c78c807a79.gifv"/>
+<img src="https://64.media.tumblr.com/0fc2285ae1344407994ca0a38ddb5257/e00fb671dc1925c4-b4/s75x75_c1/f7bf1d62b4c3a8a3cddef3c1da14356af4b8d002.gifv"/> <img src="https://64.media.tumblr.com/be48bc3b49f7782208bb5ceb2d728dfc/76f0eea448f6a984-52/s75x75_c1/074fdb43405dd403fc2c2a30493339801e1149e8.gifv"/> <img src="https://64.media.tumblr.com/357fa7ea7c710ea7a0acda4bdc0efe98/8827926dd56fd31f-f3/s75x75_c1/d286cab1e7a8b1e29ecc045cb4a6c860691b953a.gif"/> <img src="https://64.media.tumblr.com/f48d760e1a9f57eec987f6b878ccfc96/1925423831a33610-6c/s75x75_c1/d57771a61f134db3a85d9370c0906fd3074a4493.gifv"/> <img src="https://64.media.tumblr.com/808bb783082924a40bb38825fae078da/1925423831a33610-f1/s75x75_c1/494d7e74e0023cafa2fffba247dc4e7f7ddd6844.gif"/> <img src="https://64.media.tumblr.com/05a66eec089aac6e8531f242cbc0be31/03dea6320b0ffd94-63/s75x75_c1/15a147d58cd55027839f33b91ee4db656b921a4d.gif"/> <img src="https://64.media.tumblr.com/68f394594f3a52b76cfbe1c492efa3ce/6a013847a16bf59c-e9/s75x75_c1/0913c0f35820691cdbb71ade79b600c78c807a79.gifv"/>  <img src="https://64.media.tumblr.com/b6ece179268273ca76fca9e66df2acc4/1aa71c1fe017d654-3a/s100x200/4989093547504a012aba7b0bd4dfb13799bda60e.gifv"/>
 
 &nbsp;<div align="center">
 <img height="45" width="60" src="https://64.media.tumblr.com/d86f90408815148ce2907eb27d1a6b7d/ab09cd1168144eed-a0/s500x750/536e8b95a4fb0bfe0d84ef40494e7857436308d3.pnj"/>   <img height="60" width="60" src="https://64.media.tumblr.com/34976758831bd6fbd4edca275382b0bc/215a7f0b7f0133b4-4b/s500x750/8b86d9c2b7980059ad2df56078034d13ffbe27a4.pnj"/> <img height="45" width="60" src="https://64.media.tumblr.com/1abe8799d175c2135a5cf5a32ab73297/ab09cd1168144eed-16/s500x750/d688435600d8d6f2662397153ff26995e94ed158.pnj"/>
