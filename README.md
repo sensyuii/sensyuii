@@ -1,7 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=sensyuii&color=A6040f&style=flat-square&label=_♱_)
-# 
-&nbsp;<div align="center">
 <img src="https://media.discordapp.net/attachments/1274845316851437699/1277421108441649152/IMG_2078.png?ex=67e5ea1d&is=67e4989d&hm=67582f90998bc4196a50bad2b6996c268a50d77f6758583103cf1da2af07b276&=&format=webp&quality=lossless&width=1535&height=824"/>
+&nbsp;<div align="center">
 # 𝘴𝘦𝘯 or 𝘮𝘰𝘩𝘨
 
 ⠀ ׅ　[he](https://en.pronouns.page/u/.bloodyomen) ༒︎ 17 .. 𝘌𝘙/𝘛𝘓𝘰𝘡 𝘨𝘰𝘰𝘯 𝘢𝘯𝘥 𝘰𝘮𝘦𝘯 𝘵𝘸𝘪𝘯𝘴 𝘦𝘯𝘫𝘰𝘺𝘦𝘳 ⠀ྀི
@@ -24,6 +23,9 @@
 
 [strawpage](https://sensyuii.straw.page)　　　[patreon](https://www.patreon.com/c/makemeill)　　　[bluesky](https://bsky.app/profile/bloodyomen.bsky.social)
 
-# 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=w3fh1c1w6dx0lm54eszffhs5x&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=445a51&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=w3fh1c1w6dx0lm54eszffhs5x&redirect=true)
+
+# 
+
+<img height="200" src="https://media.discordapp.net/attachments/1274845316851437699/1274845667784917063/d0ae6af7999c9c157686d124b8594bf7d150dfd3.png?ex=67e5c60c&is=67e4748c&hm=9cb3ea119a4cb6010449e5ca33cd2b31424a3ec09504be858596cc786a3c4c66&=&format=webp&quality=lossless&width=844&height=844"/>
