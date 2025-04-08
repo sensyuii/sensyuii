@@ -21,7 +21,7 @@
 ### <img height="35" src="https://64.media.tumblr.com/be9c37d5bb31788d8d95e25ad861ebe4/8680f2784c87222c-cc/s250x400/744e339fa8a9f8c86edd552f9df95f79acdb48b2.gif"/> ғɪɴᴅ ᴍᴇ ʜᴇʀᴇ <img src="https://64.media.tumblr.com/09012edbc0b3438ab0771d25aa68d7dc/f08feb7fa6d2b08c-16/s75x75_c1/4c81cd752e91f5d392b04253f9f8d3b77392a18a.gifv"/>
 
 
-[strawpage](https://sensyuii.straw.page)　　　[patreon](https://www.patreon.com/c/makemeill)　　　[bluesky](https://bsky.app/profile/bloodyomen.bsky.social)
+[patreon](https://www.patreon.com/c/makemeill)　　　[bluesky](https://bsky.app/profile/bloodyomen.bsky.social)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=w3fh1c1w6dx0lm54eszffhs5x&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=445a51&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=w3fh1c1w6dx0lm54eszffhs5x&redirect=true)
