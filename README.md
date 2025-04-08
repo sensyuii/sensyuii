@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=sensyuii&color=A6040f&style=flat-square&label=_♱_)
 <img src="https://media.discordapp.net/attachments/1274845316851437699/1277421108441649152/IMG_2078.png?ex=67e5ea1d&is=67e4989d&hm=67582f90998bc4196a50bad2b6996c268a50d77f6758583103cf1da2af07b276&=&format=webp&quality=lossless&width=1535&height=824"/>
 &nbsp;<div align="center">
-# 𝘴𝘦𝘯 or 𝘮𝘰𝘩𝘨
+# 𝘴𝘦𝘯 
 
 ⠀ ׅ　[he](https://en.pronouns.page/u/.bloodyomen) ༒︎ 17 .. 𝘌𝘙/𝘛𝘓𝘰𝘡 𝘨𝘰𝘰𝘯 𝘢𝘯𝘥 𝘰𝘮𝘦𝘯 𝘵𝘸𝘪𝘯𝘴 𝘦𝘯𝘫𝘰𝘺𝘦𝘳 ⠀ྀི
 
