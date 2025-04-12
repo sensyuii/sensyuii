@@ -1,5 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=sensyuii&color=A6040f&style=flat-square&label=_♱_)
 
+<div align="center">
+
 # 𝘴𝘦𝘯 
 
 ⠀ ׅ　[he](https://en.pronouns.page/u/.bloodyomen) ༒︎ 17 .. 𝘌𝘙/𝘛𝘓𝘰𝘡 𝘨𝘰𝘰𝘯 𝘢𝘯𝘥 𝘣𝘰𝘳𝘢𝘹 𝘩𝘶𝘧𝘧𝘦𝘳 ⠀ྀི
