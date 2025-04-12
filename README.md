@@ -27,6 +27,3 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=w3fh1c1w6dx0lm54eszffhs5x&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=445a51&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=w3fh1c1w6dx0lm54eszffhs5x&redirect=true)
 
-# 
-
-<img height="200" src="https://media.discordapp.net/attachments/1274845316851437699/1274845667784917063/d0ae6af7999c9c157686d124b8594bf7d150dfd3.png?ex=67e5c60c&is=67e4748c&hm=9cb3ea119a4cb6010449e5ca33cd2b31424a3ec09504be858596cc786a3c4c66&=&format=webp&quality=lossless&width=844&height=844"/>
