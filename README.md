@@ -1,9 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=sensyuii&color=393935&style=flat-square&label=_♱_)
 
 <div align="center">
-
-<img src="https://media.discordapp.net/attachments/1274845316851437699/1277421108441649152/IMG_2078.png?ex=68175a5d&is=681608dd&hm=ea5ac6809e87018cae1a2aa8c8a8e8b2fbc7570a52ddf387d7fe407cd12ab312&=&format=webp&quality=lossless&width=1535&height=824">
-𒉭 𝘴𝘦𝘯  ﹕ he 𝙝𝙞𝙢 . intj-t ༉ˊ˗
+𒉭 𝘴𝘦𝘯  ﹕ he 𝙝𝙞𝙢 . intj-t ༉ˊ˗ 
 
 seventeen | " 𝔢𝔫𝔧𝔬𝔶 𝔱𝔥𝔢 𝔰𝔦𝔩𝔢𝔫𝔠𝔢 "
 
