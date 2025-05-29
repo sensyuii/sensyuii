@@ -1,16 +1,15 @@
-![](https://komarev.com/ghpvc/?username=sensyuii&color=393935&style=flat-square&label=_♱_)
+![](https://komarev.com/ghpvc/?username=sensyuii&color=393935&style=flat-square&label=_stalkers_)
+<div align="center">
 
+###### " 𝘸𝘩𝘰𝘴𝘦 𝘩𝘢𝘯𝘥 𝘨𝘳𝘢𝘴𝘱𝘦𝘵𝘩 𝘵𝘩𝘺 𝘭𝘦𝘢𝘴𝘩, 𝘪 𝘸𝘰𝘯𝘥𝘦𝘳? "
 <div align="center">
 <img height="400" src="https://i.pinimg.com/736x/8b/1e/08/8b1e08461cbf4185d32cec7189414fc2.jpg">
 
 @ .𝘣𝘭𝘰𝘰𝘥𝘺𝘰𝘮𝘦𝘯 𝘰𝘯 𝘥𝘤
 
-###### " 𝘸𝘩𝘰𝘴𝘦 𝘩𝘢𝘯𝘥 𝘨𝘳𝘢𝘴𝘱𝘦𝘵𝘩 𝘵𝘩𝘺 𝘭𝘦𝘢𝘴𝘩, 𝘪 𝘸𝘰𝘯𝘥𝘦𝘳? "
+<img width="40" src="https://github.com/user-attachments/assets/d3381191-e790-40bc-abf8-8f9a3397208c">
 
 # 
-
-[patreon](https://www.patreon.com/c/makemeill)　　　[bluesky](https://bsky.app/profile/bloodyomen.bsky.social)　　　[toyhouse](https://toyhou.se/makemeill)
-
 [strawpage](https://bloodyomen.straw.page)
 
 
