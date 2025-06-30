@@ -22,7 +22,7 @@
 
 ###### " 𝐰𝐡𝐨𝐬𝐞 𝐡𝐚𝐧𝐝 𝐠𝐫𝐚𝐬𝐩𝐞𝐭𝐡 𝐭𝐡𝐲 𝐥𝐞𝐚𝐬𝐡, 𝐢 𝐰𝐨𝐧𝐝𝐞𝐫.. ? "
 <div align="center">
-<img height="400" src="https://i.imgur.com/BpPtV2L.png">
+<img height="350" src="https://i.imgur.com/BpPtV2L.png">
   
 
 <div align="right">
