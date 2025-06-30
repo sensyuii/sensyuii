@@ -32,5 +32,6 @@
 
 
 # 
+<div align="right">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=w3fh1c1w6dx0lm54eszffhs5x&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=445a51&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=w3fh1c1w6dx0lm54eszffhs5x&redirect=true)
