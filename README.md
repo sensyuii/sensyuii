@@ -17,4 +17,4 @@
 ༺𓆩༒︎𓆪༻
 
 <div align="center">
-<img height="350" src="https://postimg.cc/R3Y8ZMCF">
+<img height="350" src="[https://postimg.cc/R3Y8ZMCF](https://ibb.co/0pP6PLPy)">
