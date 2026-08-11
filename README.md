@@ -1,7 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=sensyuii&color=393935&style=flat-square&label=_stalkers_)
 <div align="center">
 
-### 𒉭
 
 <div align="center">
 
@@ -18,4 +17,4 @@
 ༺𓆩༒︎𓆪༻
 
 <div align="center">
-<img height="350" src="[https://postimg.cc/R3Y8ZMCF](https://postimg.cc/R3Y8ZMCF)">
+<img height="350" src="https://postimg.cc/R3Y8ZMCF">
